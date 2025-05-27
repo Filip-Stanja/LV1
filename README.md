@@ -1,1 +1,1 @@
-# LV1
+# LV1 uzas ti je program
